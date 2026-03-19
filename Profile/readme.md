@@ -2,7 +2,7 @@
 
 ## About Us
 
-We are **Narayan Dwan-Holland, Aliana He, Kevin Fan, Emma Enyu Zhang, and Yanfu Fan** — students from Narrabundah College, ACT, and participants of the Science Mentors ACT program.
+We are **Narayan Dwan-Holland, Aliana He, Kevin Fang, Emma Enyu Zhang, and Yanfu Fan** — students from Narrabundah College, ACT, and participants of the Science Mentors ACT program.
 
 ## Our Mission
 
